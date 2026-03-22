@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MiaNow.github.io/rsschool-cv/cv
